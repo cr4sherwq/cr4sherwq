@@ -1,4 +1,4 @@
-- Hello!! I!m @cr4sherwq c:
+- Hello!! I'm @cr4sherwq c:
 - I love doing art, modding, designing and coding !
 - Pronouns: He/She/They
 
